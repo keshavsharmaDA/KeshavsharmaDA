@@ -19,7 +19,7 @@
 
 📫 **Connect with me**
 - LinkedIn: [linkedin.com/in/keshavsharma999](https://www.linkedin.com/in/keshavsharma999/)
-- Email: [YourEmailHere@gmail.com](mailto:YourEmailHere@gmail.com)
+- Email: sharmakeshav918e@gmail.com
 
 ---
 *“Data is a story waiting to be told – I help turn it into insight.”*
